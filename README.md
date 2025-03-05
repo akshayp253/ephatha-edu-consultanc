@@ -1,1 +1,1 @@
-# ephatha-edu-consultanc
+# ephatha-edu-consultancy
